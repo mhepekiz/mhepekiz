@@ -12,8 +12,6 @@
 
 #### Let's connect!
 
-https://www.linkedin.com/in/mustafahepekiz/
-
 <p align='center'>
   
   <a href="https://www.linkedin.com/in/mustafahepekiz/">
