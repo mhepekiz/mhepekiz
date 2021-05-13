@@ -5,6 +5,11 @@
 
 ##### My passion for programming started while I was a kid with Commodore 64, I knew I had to pursue this as my career.
 
+##### I'm currently working at FIXD Automotive ( www.fixd.com ) as a Software Engineer. Working with different teams for development and analytics projects.
+
+##### Still using a Commodore 64 Breadbox with 1541-II Floppy Drive and riding motorcycle around Texas (Triumph Explorer XCx)
+
+
 #### Let's connect!
 
 https://www.linkedin.com/in/mustafahepekiz/
